@@ -1,1 +1,1 @@
-# wedding-portfolio
+# Wedding Portfolio
